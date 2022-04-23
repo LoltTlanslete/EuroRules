@@ -1,4 +1,4 @@
-# EuroRules-V1.2
+# EuroRules-V1.3
 My discord: Enetau#6855
 
 -----------------------------------------------
